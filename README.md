@@ -14,3 +14,7 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+mariana clara oliveira da silva
+16 anos
+turma:2C
+Colegio Estadual DR Arnaldo Busato
